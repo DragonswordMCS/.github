@@ -7,3 +7,9 @@
 
 
 > www.dragonsword.com
+
+
+
+
+
+i suck at markdown someone make this better pwlz uwu :p 
